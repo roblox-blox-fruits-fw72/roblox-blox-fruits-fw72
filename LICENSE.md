@@ -1,4 +1,4 @@
-
+roblox king legacy professional Scripts - speed and god mode is the best roblox king legacy Script, featuring speed and god mode. Safe and powerful
 
 
 ---
